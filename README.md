@@ -1,0 +1,4 @@
+- Hi, I’m @itsjusty0gurt, I love to create conent and tutorials for games and various streaming programs!
+- Expect to find IC code for a game called stationeers, and various streaming assets. i also dabble in graphic design and photo editing!
+- You can find me on discord at the House of Buildz server: https://discord.gg/Vwapq3V
+- I also stream on twitch at: http://www.twitch.tv/itsjusty0gurt
